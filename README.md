@@ -24,3 +24,25 @@ Remove the four screw
 
 Remove those 2 also
 ![](step03.jpg)
+
+Open from the top
+![](step04.jpg)
+
+Here's what's inside, remove the black rubber
+![](step05.jpg)
+
+A close look
+![](step06.jpg)
+
+Pull this up, IT'S THE BATTERY !
+![](step07.jpg)
+
+A close look
+![](step08.jpg)
+
+Put every thing back to their place, hold volume - and power button, then TADA ! back to live !
+![](step09.jpg)
+
+Moralité : non removable battery is shit, but lenovo s\*ck less then __pomme__, because it's fun :p
+
+
