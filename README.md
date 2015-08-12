@@ -43,6 +43,6 @@ A close look
 Put every thing back to their place, hold volume - and power button, then TADA ! back to live !
 ![](step09.jpg)
 
-Moralité : non removable battery is shit, but lenovo s\*ck less then __pomme__, because it's fun :p
+Moralité : non removable battery is shit, but lenovo s\*ck less than __pomme__, because it's fun :p
 
 
